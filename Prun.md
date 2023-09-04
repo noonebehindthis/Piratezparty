@@ -13,7 +13,7 @@
 * [javjunkies](http://www.javjunkies.com/main/) (Japanese)
 * [sukebei](https:sukebei.nyaa.si/) (Japanese)
 * [javdb](http://javdb.com/) (Japanese)
-* [Supjav](https://supjav.com/) (Japanese)
+* [Supjav](https://supjav.com/) (Japanese) (Biggest library)
 * [JAVDesu](https://javdesu.com/) (Japanese)
 * [JAVLibrary](https://www.javlibrary.com/) (for JAV with no seeds, go to comments and search for ddl links)
 * [NJAV](https://njav.tv/) (Japanese)
