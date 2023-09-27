@@ -40,6 +40,7 @@
 * [porngo](https://porngo.com/) (downloads: yes, ads: normal)
 * [youjizz](https://youjizz.com/) (downloads: yes, ads: normal) (Note: old tube website, new videos are of short length)
 * [tnaflix](https://tnaflix.com/) or [empflix](https://empflix.com/) (downloads: yes, ads: normal) (Note: old scenes in full length, new videos are of short length)
+* [MyDesi.net](mydesi.net) - Desi and other stuff
 
 # Reddit Collection
 
