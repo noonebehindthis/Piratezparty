@@ -25,7 +25,8 @@
 * [Eroti](https://www.eroti.ga/) - Vintage Retro Sleaze Erotic and Grindhouse Movies
 * [fuxnxx](https://fuxnxx.com)
 * [NaughtyBlog](https://www.naughtyblog.org/) - Big library with packs available but only k2c downloads available
-
+* [ Amateur Asian porn site
+](https://w1218.91p46.com/index.php)
 
 
 # List of full length porn sites:
